@@ -15,7 +15,7 @@ Fecha: 20/12/2024
 ## Planteamiento
 
 
-Para esta PEC se nos planteaba buscar y desarrollar dos casos de hibridación que sigan los pensamientos, ideas y conceptos de Lev Manovich. Para este ensayo, busqué diferentes ejeplos que no me acabaron de convencer, hasta que encontré los dos escogidos, que tratan temas que forman parte de mi día a día y de temas que encuentro interesantes. Mis dos casos elegidos son el videojuego **Beat Saber** y los **Esports**.  
+Para esta PEC se nos planteaba buscar y desarrollar dos casos de hibridación que sigan los pensamientos, ideas y conceptos de Lev Manovich. Para este ensayo, busqué diferentes ejemplos que no me acabaron de convencer, hasta que encontré los dos escogidos, que tratan temas que forman parte de mi día a día y de temas que encuentro interesantes. Mis dos casos elegidos son el videojuego **Beat Saber** y los **Esports**.  
 
 ## Re-descubriendo la hibridacion: Caso 1
 
